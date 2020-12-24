@@ -1,2 +1,2 @@
-# PLinko-with-scores
-lllllllllllllllllll my internet :(
+# Prajit Shandilya
+
